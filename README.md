@@ -1,3 +1,3 @@
 # student portfolio
 
-Hii there, this is atharva and this is my poirtfolo.
+Hii there bruhh, this is atharva and this is my poirtfolo.
